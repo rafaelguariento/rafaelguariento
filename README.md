@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rafaelguariento
-- 👀 I’m interested in Ecology and Science oveall
+- 👀 I’m interested in Ecology and Science overall
 - 🌱 I’m currently teaching Ecology at the Federal University of Mato Grosso do Sul, Brazil. 
 - 💞️ I’m looking to collaborate on Evolution of Resistance to Pesticides
 - 📫 How to reach me: rafael.guariento@ufms.br
